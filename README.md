@@ -26,3 +26,5 @@
 ![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) dni ; `incredibly basic dni ; pedos / zoophiles / racists / anti-lgbtqia+` `hoyoverse fandom on thin ice` `helluva/hazbin fandom` `sysmeds` `MINORS (-18)` `chronically online mfkers` `irls/fictkins are on thin ice but welcome to interact` `shotacons/lolicons` `OKEGOM fandom is on thin ice` 
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
+
+made by your favourite wander - ☂️ 

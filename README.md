@@ -8,7 +8,9 @@
 
 ׂ╰┈➤ `ISTP` ❤︎ `9w1` ❤︎ `Mel-Sag` ![](https://64.media.tumblr.com/732cce8bf853f0453afbfc72c6759f01/e3659e8b5ddae04c-70/s75x75_c1/4630e59ce6190eea81e3a55fb257025fdb4f5f4d.gifv)
 
-ׂ╰┈➤  ![](https://64.media.tumblr.com/ffd1700bcb16e2b150c1757680930076/e3659e8b5ddae04c-55/s75x75_c1/32df0f359daf2aa13c66281a6a5ed0dfbb128e2d.gifv) `irl dragon` ❤︎ `ILMGF 16.06.24` ❤︎ `syshost`
+╰┈➤ ![](https://64.media.tumblr.com/ffd1700bcb16e2b150c1757680930076/e3659e8b5ddae04c-55/s75x75_c1/32df0f359daf2aa13c66281a6a5ed0dfbb128e2d.gifv) `AuDHD` ❤︎ `BPD` ❤︎ `CPTSD`
+
+ׂ╰┈➤  `irl dragon` ❤︎ `ILMGF 16.06.24` ![](https://64.media.tumblr.com/7f4854cb4449817d8a0d9650d9ebe17c/e3659e8b5ddae04c-c8/s75x75_c1/00ea5746f36734dd5720966cefe9df1a847dda37.gifv)
 
 ↶*ೃ✧˚. ❃ ↷ ˊ-
 
@@ -20,7 +22,7 @@
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 
-![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) byi ; `comshipper/darkshipper` , `substance abuser` , `DOL player / BTD player` , `brutally blunt` , `afk 24/7` , `uses the f slur (who cares)` , `our gf is a perverted freak and diddles us (toxic yuri)` , `marvel rivals loser` , `pagan wiccan` , `unc status (thanks Aether)` , `i believe fiction can affect reality in most cases BUT there is a fine line (ie if you cant handle darker interests that or adult themes best to avoid me)` , `i have whispers off + friend reqs off` , `normally sitting with friends (never normally alone)` , `i can be pretty confrontational/i tend to cause issues if i dont agree with something` , `DIAGNOSED and CURRENTLY GETTING TREATED UDD + BPD` `Also AuDHD` 
+![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) byi ; `comshipper/darkshipper` , `substance abuser` , `DOL player + BTD player` , `brutally blunt` , `afk 24/7` , `uses the f slur (who cares)` , `our gf is a perverted freak and diddles us (toxic yuri)` , `marvel rivals loser` , `pagan wiccan` , `unc status (thanks Aether)` , `i believe fiction can affect reality in most cases BUT there is a fine line (ie if you cant handle darker interests that or adult themes best to avoid me)` , `i have whispers off + friend reqs off` , `normally sitting with friends (never normally alone)` , `i can be pretty confrontational/i tend to cause issues if i dont agree with something`
 
 
 ![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) dni ; `incredibly basic dni ; pedos / zoophiles / racists / anti-lgbtqia+` `hoyoverse fandom on thin ice` `helluva/hazbin fandom` `sysmeds` `MINORS (-18)` `chronically online mfkers` `irls/fictkins are on thin ice but welcome to interact` `shotacons/lolicons` `OKEGOM fandom is on thin ice` 

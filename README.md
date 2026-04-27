@@ -22,10 +22,9 @@
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 
-![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) byi ; remaking.
-![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) dni ; remaking
+![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) byi ; `substance user` , `bpd haver` , `host is a soul bound self shipper` , `majority interests are adult and private` , `problematic interests to cope with trauma` , `medically recognised system (11 years of being aware)` , `fictives may front often on pony town` , `normally afk with friends` , `whisps are friend only + ask to friend (we do not bite)` , `very anti drama/anti conflict, Open to making friends as long as it's respectful` .
+
+![](https://64.media.tumblr.com/ec26ac8a8d3e8334998d3be1a12040b6/b98d1aed31c5fb3c-62/s75x75_c1/b85716bc422a71ac96548eaee8a39f7a86767838.gifv) dni ; `incredibly basic dni` , `-18` , `homphobes/transphobes/racist` , `ableists (this includes those who villianize those with bpd/aspd/npd)` , `ship course (unless its incest/pedophilia idgaf)` , `sees fictives as their source` , `yumeshippers who see fictives as their f/o (they aren't)` , `helluva boss/hazbin hotel (friends exception)` , `genshin impact/honkai star rail (friends exception)` , `anti-therian/anti-furry` , `irl/fictionkins (friends exception)`
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
-
-being remade by Bellamy.
 

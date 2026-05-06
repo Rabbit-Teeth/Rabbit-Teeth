@@ -4,13 +4,13 @@
 ![](https://64.media.tumblr.com/3ecb65fe54bfcd9ed31a6f1a47eea310/a79617109d97b39a-ff/s1280x1920/fc6e53e6d5da0204c41b56d454a9476ab68c34dc.jpg)
 
 ## ![](https://64.media.tumblr.com/eb88b2054ee89d5cb7ea7311cb1b60b0/ebf484aa11fc5da9-45/s75x75_c1/844873587a0044114a27760ae10fb59f9563e424.gifv) *Lizard / Durin / Corrin* ![](https://64.media.tumblr.com/cd111a9c4945294fd2fcbdb014845395/b98d1aed31c5fb3c-cf/s75x75_c1/accd0d446f6716622998db8261931ff1097c21ac.gifv)
-ׂ╰┈➤ ![](https://64.media.tumblr.com/5223dd010d3f48b314b17a3751508e20/b98d1aed31c5fb3c-44/s75x75_c1/383152848ec87b1ebb509f3cab115f0e0c23c6ca.gifv) `25` ❤︎ `Enby Lesbian` ❤︎ `split-introject`
+ׂ╰┈➤ ![](https://64.media.tumblr.com/5223dd010d3f48b314b17a3751508e20/b98d1aed31c5fb3c-44/s75x75_c1/383152848ec87b1ebb509f3cab115f0e0c23c6ca.gifv) `25` ❤︎ `Enby Queer` ❤︎ `split-introject`
 
 ׂ╰┈➤ `ISTP` ❤︎ `9w1` ❤︎ `Mel-Sag` ![](https://64.media.tumblr.com/732cce8bf853f0453afbfc72c6759f01/e3659e8b5ddae04c-70/s75x75_c1/4630e59ce6190eea81e3a55fb257025fdb4f5f4d.gifv)
 
 ╰┈➤ ![](https://64.media.tumblr.com/ffd1700bcb16e2b150c1757680930076/e3659e8b5ddae04c-55/s75x75_c1/32df0f359daf2aa13c66281a6a5ed0dfbb128e2d.gifv) `AuDHD` ❤︎ `BPD` ❤︎ `CPTSD`
 
-ׂ╰┈➤  `irl dragon` ❤︎ `ILMGF 16.06.24` ![](https://64.media.tumblr.com/7f4854cb4449817d8a0d9650d9ebe17c/e3659e8b5ddae04c-c8/s75x75_c1/00ea5746f36734dd5720966cefe9df1a847dda37.gifv)
+ׂ╰┈➤  `irl dragon` ![](https://64.media.tumblr.com/7f4854cb4449817d8a0d9650d9ebe17c/e3659e8b5ddae04c-c8/s75x75_c1/00ea5746f36734dd5720966cefe9df1a847dda37.gifv)
 
 ↶*ೃ✧˚. ❃ ↷ ˊ-
 

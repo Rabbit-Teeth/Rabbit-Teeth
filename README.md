@@ -1,9 +1,9 @@
 <div align="center">
 
 
-![](https://64.media.tumblr.com/3ecb65fe54bfcd9ed31a6f1a47eea310/a79617109d97b39a-ff/s1280x1920/fc6e53e6d5da0204c41b56d454a9476ab68c34dc.jpg)
+![](https://64.media.tumblr.com/6de38b11b764e43483624977b4a9b5e4/20b84008a013fb65-c1/s540x810/5b067a9da981a27d3b8a78b06b6ed64d80a11401.gifv)
 
-## ![](https://64.media.tumblr.com/eb88b2054ee89d5cb7ea7311cb1b60b0/ebf484aa11fc5da9-45/s75x75_c1/844873587a0044114a27760ae10fb59f9563e424.gifv) *Lizard / Durin / Corrin* ![](https://64.media.tumblr.com/cd111a9c4945294fd2fcbdb014845395/b98d1aed31c5fb3c-cf/s75x75_c1/accd0d446f6716622998db8261931ff1097c21ac.gifv)
+## ![](https://64.media.tumblr.com/eb88b2054ee89d5cb7ea7311cb1b60b0/ebf484aa11fc5da9-45/s75x75_c1/844873587a0044114a27760ae10fb59f9563e424.gifv) *Lizard / Ame / Corrin* ![](https://64.media.tumblr.com/1c5eeff6f38206a255904c41e5c42de1/841cfc3a4c409dc9-71/s540x810/c0aceed7826f42aed000b42f5268adad023a045a.gifv)
 ׂ╰┈➤ ![](https://64.media.tumblr.com/5223dd010d3f48b314b17a3751508e20/b98d1aed31c5fb3c-44/s75x75_c1/383152848ec87b1ebb509f3cab115f0e0c23c6ca.gifv) `25` ❤︎ `Enby Queer` ❤︎ `split-introject`
 
 ׂ╰┈➤ `ISTP` ❤︎ `9w1` ❤︎ `Mel-Sag` ![](https://64.media.tumblr.com/732cce8bf853f0453afbfc72c6759f01/e3659e8b5ddae04c-70/s75x75_c1/4630e59ce6190eea81e3a55fb257025fdb4f5f4d.gifv)

@@ -14,7 +14,7 @@
 
 ↶*ೃ✧˚. ❃ ↷ ˊ-
 
-![](https://64.media.tumblr.com/14393c3b7e5e5f43a87cfddebe14998b/d454150094ca7d69-4b/s400x600/cafa49f0c1c269df94a754388ab76894b1f25817.gifv)
+![](https://i.pinimg.com/originals/12/79/8d/12798de5b215c05ce931586fd03b5122.gif)
 
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 

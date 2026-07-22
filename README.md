@@ -10,7 +10,7 @@
 
 ╰┈➤ ![](https://64.media.tumblr.com/ffd1700bcb16e2b150c1757680930076/e3659e8b5ddae04c-55/s75x75_c1/32df0f359daf2aa13c66281a6a5ed0dfbb128e2d.gifv) `AuDHD` ❤︎ `BPD` ❤︎ `CPTSD`
 
-ׂ╰┈➤  `irl dragon` ![](https://64.media.tumblr.com/7f4854cb4449817d8a0d9650d9ebe17c/e3659e8b5ddae04c-c8/s75x75_c1/00ea5746f36734dd5720966cefe9df1a847dda37.gifv)
+ׂ╰┈➤  `irl dragon` ❤︎ `collared` ![](https://64.media.tumblr.com/7f4854cb4449817d8a0d9650d9ebe17c/e3659e8b5ddae04c-c8/s75x75_c1/00ea5746f36734dd5720966cefe9df1a847dda37.gifv)
 
 ↶*ೃ✧˚. ❃ ↷ ˊ-
 

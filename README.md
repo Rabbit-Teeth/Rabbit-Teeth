@@ -30,7 +30,7 @@
 ↶*ೃ✧˚. ❃ ↷ ˊ- 
 
 
-![](https://64.media.tumblr.com/af9622d8cd52339ee9c344ae54a33b6a/fb99b9e869db4899-6f/s75x75_c1/64ad2a4ff0392d5485e05e8dcce74bf744eb8d45.gifv) byi ; `substance abuser` , `normally offtab or asleep` , `whisps and friend requests are off` , `dont approach me with drama. I dont care for it` , `im very much hyperfocused on my primary group, you will see me with them or not at all.` , `if you cant tell i am a heavy self shipper, i love my soul bonds dearly and have very vivid memories of my past lives with them` , `i am polyam however i am collared and very happy, flirting is fine but if you are told stop then please respect that` .
+![](https://64.media.tumblr.com/af9622d8cd52339ee9c344ae54a33b6a/fb99b9e869db4899-6f/s75x75_c1/64ad2a4ff0392d5485e05e8dcce74bf744eb8d45.gifv) byi ; `substance abuser` , `NORMALLY offtab or asleep` , `whisps ARE on, friend requests are not (just ask)` , `dont approach me with drama. I dont care for it` , `im very much hyperfocused on my primary group, but i am friendly and you may approach me if im alone` , `if you cant tell i am a heavy self shipper, i love my soul bonds dearly and have very vivid memories of my past lives with them` , `i am polyam however i am collared and very happy, flirting is fine but if you are told stop then please respect that` .
 
 ![](https://64.media.tumblr.com/af9622d8cd52339ee9c344ae54a33b6a/fb99b9e869db4899-6f/s75x75_c1/64ad2a4ff0392d5485e05e8dcce74bf744eb8d45.gifv) dni ; `-18` , `homophobes/transphobes/racists/xenophobes` , `ship discourse (unless its canon incest OR pedophilic)` , `anti-furry/anti-therian` , `asl shippers/coralaw/doflaw/lawlu` , `hoyoverse fandom (friends exception)` , `helluva/hazbin fandom (friends exception)` , `okegom fandom` .
 
